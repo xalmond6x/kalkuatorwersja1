@@ -1,0 +1,1 @@
+# kalkuatorwersja1
